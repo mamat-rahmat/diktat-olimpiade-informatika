@@ -1,0 +1,1 @@
+# diktat-olimpiade-informatika
